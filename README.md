@@ -1,2 +1,2 @@
 # Project-2
-Purwakarta, Kudus, Semaran Trail
+Purwakarta, Kudus, Semarang Trail
